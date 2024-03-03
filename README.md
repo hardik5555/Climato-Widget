@@ -1,0 +1,1 @@
+# Climato-Desktop-Buddy
